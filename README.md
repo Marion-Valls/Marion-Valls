@@ -6,6 +6,6 @@
 - 🔭 I’m currently working on school projects
 - 🌱 I’m currently learning computer science stuff
 - 👯 I’m looking to collaborate on innovating projects
-- 📫 How to reach me: ze_kap (snap)
+- 📫 How to reach me: linkedin
 - 😄 Pronouns: she/her
 
