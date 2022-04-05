@@ -6,6 +6,6 @@
 - 🔭 I’m currently working on school projects
 - 🌱 I’m currently learning computer science stuff
 - 👯 I’m looking to collaborate on innovating projects
-- 📫 How to reach me: no way
+- 📫 How to reach me: look.yours@ass.com
 - 😄 Pronouns: she/her
 
